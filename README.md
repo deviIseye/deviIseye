@@ -2,7 +2,7 @@
 </p>
 <p align="center">
 
-  <img src="https://i.ibb.co/8gB5T2vQ/7869044e91e1a692-tumblr-ljeedcjqfx1qagtwyo1-500.gif" alt="Description of image" width="400"/>
+  <img src="https://i.ibb.co/jZLw4kqJ/8d9352fa4e7461a1539254103dbc4b98.jpg" alt="Description of image" width="400"/>
 </p>
 <div align="center">
   
